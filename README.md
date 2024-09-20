@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @larsvange
-- 👀 I’m interested in eliminating poverty
+- 👀 I’m interested in saving the climte
 - 🌱 I’m currently learning to code with AI
 - 💞️ I’m looking to collaborate on things already stated
 - 📫 How to reach me: Send me a good old fashioned email
